@@ -1,0 +1,1 @@
+Brother of Gundren Rockseeker, Tharden was held captive by the Black Spider with the intent to be used to activate the magical Forge of Spells.
