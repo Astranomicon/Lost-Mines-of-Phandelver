@@ -1,0 +1,21 @@
+Ches 5-6th, 1500 DR
+
+Upon arriving back in Phandalin, the group head towards the Lion Shield Costar. Hoping to acquire a wagon and horse to help make this upcoming journey a little more efficient.
+
+They meet with a peculiar man who sees them inside and talks to them about carts and horses. The group go around to the stable at the side, the stable is bolted shut and the man goes through dozens of keys before finding the right one. The stables look practically empty before a third stall is opened and a little grey-faced donkey comes trotting out. Ralph speaks to the Donkey, conversations far beyond Cithrel and Siv's comprehension.
+
+They agree to rent the donkey "Red" and cart for a week's time at the rate of 7 silver a night. They also purchase 4 bags of feed. The cart and donkey are not of highest quality, but with the work horse having been stolen by goblins, they are left with little other choice within Phandalin and no time to go elsewhere.
+
+Siv pays with a Platinum and they agree to stop by the manor briefly, Siv hoping to fix up the cart a bit and Cithrel wishing to inform Chandra of their upcoming journey. Chandra requests a souvenir and promises to protect herself, earning a sigh and smile from Cithrel. 
+
+Soon later, they all set out towards the Triboar trail and head north-east ward. As they begin they're journey, the sun just starting to set behind them, It seems like Red is growing more tired as they continue and they quickly realize he's not built to carry them all on the wagon. It seems they may need to walk alongside him and have him carry some of their gear and feed.
+
+As they continue, Cithrel casts a protective spell over Red seeing as he was having a hard time and they appear to almost lose him. Cithrel immediately stops the cart and insists they rest for the night, giving Red some time to recuperate. They rest for the night, they pull into the woods and Cithrel sets up 2 tents.
+
+They agree on a game plan and Siv starts the first watch, Cithrel trancing for the first four hours to then cover the next 4. When awakened for her shift, Cithrel spends her time reading through her prayer book. She finds a prayer for staying true to the path, don't falter on the small things, but be the guide those around you need. Cithrel remembers this one fondly, it reminds her of her parents and what they did for the drow people before they went missing. The night goes largely uneventful. Eventually the birds awake and Ralph awakens not long after. They give Siv more time to rest before they all get up and get on their way.
+
+They make some decent headway before, run begins to pour down from the sky. It gets cold quickly and this begins to slow them down significantly. The cold and wet beginning to get to Siv. They make a little more distance before, going through the mud and rain before a more proper wagon begins headed their way. Hauled by two large horses. Seeing as the road is thin, they veer off to the side of the road to give them room to come through. The man driving the cart has a wispy mustache and goatee and is wearing worn leather with daggers on a bandoleer. As they get closer, eye contact is made and he raises a finger to his lip as if to shush them. Cithrel gets the sense that the individual passing by was up to no good, she sits on this for a while. And surely enough they come across what he was telling them to keep their mouths shut about. They see a war-time array of bodies thrown into the ditch, Cithrel asks them to stop and hurries to the ditch to see three dead children and two dead older men with their throats slit. Their tunics were cut open with a symbol carved into their chest, its a symbol unrecognizable to her. But not the first time she's heard of victims being marked for one reason or another. This can't be anything good. The Symbol is crudely scratched into the two men, it looks like a hand with four fingers stretching upward and the thumb is out to the left. In the center of the hand is an eyeball.
+
+Cithrel requests her party to take some time to allow her to properly send off these poor souls. She digs them some graves and buries them with a prayer. She marks their graves and ushers the group to continue onward, seeing as there was nothing else they could do for the already lost.
+
+(2 Hexes of Travel remaining in today's day)

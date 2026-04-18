@@ -1,0 +1,5 @@
+Uktar 29th, 1499 DR
+
+The party loot the room after Ralph was re-awoken from his drug induced coma. Siv, Cithrel and Chandra investigating the dwarven statue that Siv refers to as Dumathoin. Cithrel notes Chandra was staring at the statue which also has green eyes, Siv mentions gemstone eyes are normal for Dwarven statues, but not so much the glowing bit. Siv gets closer to take a closer look meanwhile Ralph and Rokhar hurry off to investigate other things in their chaotic manner.
+
+They end up finding Nundren, looting about a bit more before returning home to Phandellin. There is a festival going to be held in honour of him, Chandra also learns of the supposed death of their parents. Cithrel isn't entirely convinced but its enough to shock Chandra understandably and she runs towards their house ruins. The party is granted 10% of the future outcome of the dwarven brothers reviving the magical forge and using it for the good of the Sword Coast. Siv agrees to open a shop in Phandellin, and Ralph is going to oversee the rebuilding of his old family home and even Cithrel's family home and temple is going to be rebuilt. 

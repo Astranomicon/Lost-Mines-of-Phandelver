@@ -1,0 +1,13 @@
+Ches 12th, 1500 DR
+
+Corvin spends his morning while the group is out snooping about everyone's rooms, looking for any information about these strange people that he can find. He stumbles across a written book signed by Dr. Maximus Ixander V in Ixle's room.
+
+When the trio arrive back at the mansion, Corvin greets them as they arrive, offering to prepare them a dinner. He throws together a terrible meal that they witness in the kitchen area, he has not a clue what he's doing. Cithrel is convinced. He throws together something that looks horrifying and douses it in hot peppers before serving it to them. They all eat it to be polite, Cithrel does anyhow and immediately regrets. Lucien looks as though he's received food poisoning.
+
+Cithrel then discusses her thoughts about what happened at the Giant's Rest. The whole mindlink, hive mind ordeal they witnessed at the very end which Cithrel is pretty frazzled about. Siv doesn't seem excited about this, understandably so. Hive Minds being a very Ilithid coded thing. Cithrel says they need to sneak in and find out what's in that cellar nearby the bar. Where they craft this in-house ale.
+
+Cithrel inquires if Corven can go invisible to which Lucien pipes up that he can walk between realms. They all seem surprised by this as he demonstrates this. They agree Corvin will go in to act as a scout from within, then they three will sit at the back left corner of the outside part of the building while Lucien teleports in. Siv will keep an eye out from the outside and Cithrel will concentrate on bolstering her friends and preparing for if shit hits the fan. They also decide Lucien will sound a bell or tremor the earth should something go astray. They rest for an hour to recuperate after dinner and then head to the Tavern. 
+
+The sun is beginning to set,  Lucien does a quick survey around the building and states his best bet will be to go into the stable and then do his ethereal walk into the cellar from there. Cithrel blesses her friends, and takes a post to the left most front corner of the inn. Siv joining her as Lucien sneaks in and Corvin heads inside to keep an eye out from within.
+
+She waits outside the tavern with Siv, hearing a faint echoed laugh from in her head which puts her in a sense of unease. She picks up small pieces of the conversation, from within, lingering affects from whatever the hell she drank. She is heavy with regret from testing this out. Still silently waiting for any word back from Corvin or Lucien. It couldn't take that long could it? Siv and her bother watch someone exit after a long time, but it's not Corvin. Cithrel taps her foot impatiently but finally Corvin comes out.

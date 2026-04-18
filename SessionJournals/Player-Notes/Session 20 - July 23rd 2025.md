@@ -1,0 +1,9 @@
+Ches 2nd, 1500 DR
+
+The zombie dwarves begin to attack the pillars of the scaffolding her and Siv are standing upon, the structure rumbles dangerously under foot. Cithrel misses a spell and the zombies begin to hurl lava balls towards them. Cithrel is hit with a powerful magical spell herself.
+
+Ralph rages and seems to go after the dwarves. The ground shakes but this time not as a cause of the Zombies, this time, Rokhar bursts through the wall and slam his pick into a nearby zombie. The party was glad to see him arrive in the nick of time. Ralph, Siv and Rokhar tear into the crowd of zombies. Cithrel battles one of the remaining zombies, a close fight where Cithrel is being torn asunder. Thankfully Siv comes up to save her and some quiet falls over them. It doesn't last long as reintroductions are to be had with Rokhar. He claims he came to deliver Ralph's other earring. He seems to have found them through the little goblin they initially took in and brought them here before dashing away. Seems he ran into Rokhar. The little goblin had since expired however and Rokhar tossed him into the lava for a eternal slumber.
+
+The group agree they need to rest somewhere safer before continuing onward. They debate going into the Obsidian Pyramid as it seemed a good position to defend, however they were uncertain of what could be inside. Siv is unfamiliar with the ancient dwarven ruins carved into the walkway, but the man from the jar mentions he could understand them and would be willing to help if he could be released. Siv and Cithrel debate how they may be able to free him in this moment. But agree they should rest before they free him. In which case they do.
+
+They take a long rest.
